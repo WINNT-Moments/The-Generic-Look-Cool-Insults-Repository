@@ -1,0 +1,1 @@
+Ever wanted a collection of unoriginal, and overall, stupid insults? Well, if so, here you go! Please recommend me other generic insults like these, I'm willing to expand this repository as much as I can..
